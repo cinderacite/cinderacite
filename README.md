@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://files.catbox.moe/n2jclq.jpg"/>
+  <img src="https://files.catbox.moe/jt5tpe.gif"/>
 </p>
 
-<p align="center">i love u johtrio. so cute so cute
+<p align="center">soo cute so cute
